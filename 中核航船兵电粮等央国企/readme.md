@@ -57,6 +57,20 @@
 
 中国东方航空2024全球校园招聘  https://mp.weixin.qq.com/s/fMQbiFfxMOjm9D4oH_Qddw
 
+央企（6险2金）中铁八局-2024届校园招聘  https://mp.weixin.qq.com/s/JcnD86iJ7LhwRwmcgdw_yg
+
+央企，中电海康-2024校园招聘  https://mp.weixin.qq.com/s/e75sEqF6aTwD4o_amXCn4A
+
+中国电科三十六所-2024届 https://mp.weixin.qq.com/s/oHGmDXq5hAsBWN0SOnZq7Q
+
+中国船舶集团七〇八所-2024届校园招聘 https://mp.weixin.qq.com/s/tiFF6SxXpaGD1cRZwZn_Vw
+
+中国电子科技集团第43研究所-2024校招  https://mp.weixin.qq.com/s/urHEUKWbsmVzzgzytm4J7g
+
+
+
+
+
 
 
 
