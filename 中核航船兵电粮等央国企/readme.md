@@ -35,6 +35,27 @@
 
 中国东方航空2024全球校园招聘  http://job.ceair.com/campus/campusJobList.html
 
+中国葛洲坝集团24届秋招  https://mp.weixin.qq.com/s/sVAgVE4YL1b5xGjNrcsS2Q
+
+中船航海  https://mp.weixin.qq.com/s/5lKpIg0QPtQFr4OxTEQJ_A
+
+中广核24届秋招   https://mp.weixin.qq.com/s/f1FSo4eZgBxdUbxC8FtWgQ
+
+航空工业24届秋招  https://mp.weixin.qq.com/s/b8tKXK2Jk8oI2gaFRrFo1Q
+
+中国电科五十五所24届秋招  https://mp.weixin.qq.com/s/pnvUs7-ncNNfSnTAoUwuHA
+
+航空工业雷达所24届秋招  https://mp.weixin.qq.com/s/0au0ll6HI4m6a9pgjtSJjw
+
+中国一汽24届秋招  https://mp.weixin.qq.com/s/AB9zh_F8KqOcIS6YnDaanA
+
+2024华润置地校园招聘  https://mp.weixin.qq.com/s/LNBlc_sZOuptzON7eFu3TQ
+
+中航技 2024校园招聘  https://mp.weixin.qq.com/s/HYm9EPQzriwh1REe_sT9Eg
+
+2024中交上海航道局校园招聘  https://mp.weixin.qq.com/s/gj8V4tzkhzvmJa_0_5TIgw
+
+中国东方航空2024全球校园招聘  https://mp.weixin.qq.com/s/fMQbiFfxMOjm9D4oH_Qddw
 
 
 
