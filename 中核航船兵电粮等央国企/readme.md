@@ -33,7 +33,7 @@
 
 中电38所  http://www.cetc.com.cn/38/335825/335771/index.html
 
-
+中国东方航空2024全球校园招聘  http://job.ceair.com/campus/campusJobList.html
 
 
 
