@@ -50,7 +50,9 @@
 
 天津农商银行  https://www.trcbank.com.cn/News/202308/202308211648071.htm
 
+中国银行  https://campus.chinahr.com/pages/2024-boc/#/jobs
 
+中国邮储银行   https://psbc2024.zhaopin.com/cl.html
 
 
 
