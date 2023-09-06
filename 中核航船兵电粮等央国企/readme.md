@@ -73,7 +73,7 @@
 
 广汽集团2024校园招聘https://mp.weixin.qq.com/s/FCf25a8nzRokVUzeQB2G_Q
 
-
+中铁广州局三公司2024届校园招聘https://mp.weixin.qq.com/s/YiS3xpwEO70BagZb3Dn98Q
 
 
 
