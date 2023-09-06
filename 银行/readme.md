@@ -56,7 +56,7 @@
 
 杭州银行2024届校园招聘https://mp.weixin.qq.com/s/vNixgTzEEMjJJqRtquVBBg
 
-
+工商银行  https://mp.weixin.qq.com/s/G-lDqVFvRNMMNA878pJ3Ag
 
 
 
