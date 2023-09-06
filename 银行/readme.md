@@ -54,7 +54,7 @@
 
 中国邮储银行   https://psbc2024.zhaopin.com/cl.html
 
-
+杭州银行2024届校园招聘https://mp.weixin.qq.com/s/vNixgTzEEMjJJqRtquVBBg
 
 
 
