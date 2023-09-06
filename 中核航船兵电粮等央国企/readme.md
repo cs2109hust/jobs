@@ -67,10 +67,11 @@
 
 中国电子科技集团第43研究所-2024校招  https://mp.weixin.qq.com/s/urHEUKWbsmVzzgzytm4J7g
 
+中铁建设集团2024届校园招聘https://mp.weixin.qq.com/s/-vGmfq2gXWB9IXPKqzhN6w
 
+兵器工业集团2024届校园招聘https://mp.weixin.qq.com/s/Y4HW12CggOGKjCDXPYk20A
 
-
-
+广汽集团2024校园招聘https://mp.weixin.qq.com/s/FCf25a8nzRokVUzeQB2G_Q
 
 
 
