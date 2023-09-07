@@ -75,6 +75,28 @@
 
 中铁广州局三公司2024届校园招聘https://mp.weixin.qq.com/s/YiS3xpwEO70BagZb3Dn98Q
 
+中国航空发动机集团  https://aecc.iguopin.com/job
+
+中海油研究总院  http://cnooc.zhaopin.com/
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
