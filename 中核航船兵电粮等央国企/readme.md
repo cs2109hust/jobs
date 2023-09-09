@@ -79,6 +79,8 @@
 
 中海油研究总院  http://cnooc.zhaopin.com/
 
+航天科工 https://casic.m.zhiye.com/joblist.html?jc=2
+中国中化 https://sinochem.hotjob.cn/
 
 
 
