@@ -64,6 +64,7 @@
 
 上海银行  https://bosc.zhiye.com/campus/jobs
 
+中国建设银行http://job2.ccb.com/cn/job/plan_index.html?planType=XY
 
 
 
