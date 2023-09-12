@@ -85,13 +85,11 @@
 
 中国水电五局2024届校园招聘正式启动！https://mp.weixin.qq.com/s/OWwyf8paHBV-WOIlEj2Ogw
 
+咪咕公司2024校园招聘   https://mp.weixin.qq.com/s/EE2eWohWiNT8os94jZThmQ
 
+新华保险2024年校园招聘  https://mp.weixin.qq.com/s/dg53ZqOTmlFnudSoWbP70w
 
-
-
-
-
-
+中国五矿2024校园招聘正式启动！https://mp.weixin.qq.com/s/qiBfyyrCLC6IAJepJMY-Mg
 
 
 
