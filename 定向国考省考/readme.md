@@ -14,7 +14,7 @@
 
 黑龙江定向 （据说去考试送羽绒服） ：  https://gongxuan.ljxfw.gov.cn/index.php/Homes/News/content/cid/207/newid/383.html
 
-
+云南定向 https://mp.weixin.qq.com/s/PrXKD4cuc9UxVOrm0nHiBg
 
 
 
