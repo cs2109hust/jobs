@@ -91,7 +91,11 @@
 
 中国五矿2024校园招聘正式启动！https://mp.weixin.qq.com/s/qiBfyyrCLC6IAJepJMY-Mg
 
+中国煤炭科工集团有限公司2024年全球校园招聘公告https://www.gwy.com/gqzp/319713.html
 
+中国铁建招聘|中国土木工程集团有限公司2024年应届毕业生招聘公告https://www.gwy.com/gqzp/319646.html
+
+航天科工人才招聘|中国航天科工集团第二研究院2024校园招聘启动https://www.gwy.com/gqzp/319780.html
 
 
 
