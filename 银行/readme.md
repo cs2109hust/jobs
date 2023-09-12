@@ -66,6 +66,36 @@
 
 中国建设银行http://job2.ccb.com/cn/job/plan_index.html?planType=XY
 
+汉口银行校招🛎报名截止10月9日
+
+https://webapp.zhaopin.com/2023/hd/hkyhg0821ZL82493/announcement/index.html
+
+宁波银行校招🛎报名截止10月31日
+
+https://zhaopin.nbcb.com.cn
+
+上海银行校招🛎报名截止10月8日
+
+公告：https://bosc.zhiye.com
+
+江苏银行24校招🛎报名截止10月7日
+笔试时间：10月18日
+
+公告：https://hr.jsbchina.cn/spa/custom/static/index.html#/main/cs/app/415469a50449415a9b56642c69728966_campusnoticedetail?billid=10
+
+哈尔滨银行校招🛎报名截止10月6日
+
+公告：https://www.hrbb.com.cn/harBinBank/jrhx/hxzp/1261566/index.html
+
+杭州银行校招🛎报名截止10月31日
+
+公告：https://myjob.hzbank.com.cn/hzzp-apply/dist/static/index.html#/noticeDetail?id=18104374
+
+苏州银行校招报名截止10月31日
+
+https://hr.suzhoubank.com/zpweb/bulletinEdit.do?actPara=findBulletin&bulletinId=OGE4ZmM1NWQ4YTFkMTk4OTAxOGE1ZGI4MTQ1ZDBkYTY=&csrftoken=Y2FiNzgyNmM=
+
+
 
 
 
