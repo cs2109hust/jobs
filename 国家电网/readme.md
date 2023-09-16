@@ -4,3 +4,5 @@
 国家电网 南瑞集团： https://mp.weixin.qq.com/s/Jc8Pb11LRoJsTyzjI7c-QA
 
 国家管网秋季招聘正式开始https://pipechina.hotjob.cn
+
+国家电网  https://mp.weixin.qq.com/s/-eZtG9jb1Vt8WG0TsLtvbQ
