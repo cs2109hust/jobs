@@ -123,6 +123,32 @@
 
 中核二四2024届校园  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495523&idx=6&sn=533d73e90838442767c1a23cb64c57d7&chksm=ce1db330f96a3a26da0ce43737eb01d7277d681878275f685c030d581e1342101a2717995378&scene=126&sessionid=1694848577#rd
 
+中铁七局2024届校园招聘   https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495926&idx=4&sn=53554422cad7e4168ad2ab29641e511d&chksm=ce1daca5f96a25b342d01b0fcd6bb4c6a3c13e79be96553e6a0076443c694ad830579e5b4ec7&scene=126&sessionid=1694848577#rd
+
+
+中国农业发展银行2024年度校园招聘  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247496634&idx=1&sn=2a5dae8549416939d6441794c359c5c3&chksm=ce1dafe9f96a26ffc6ea2061dcd65733f751a68ef57444e1a5c876b4a7a37dfacf0b533f1f12&scene=126&sessionid=1694848577#rd
+
+
+中国航信2024届校园招聘      https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247496771&idx=6&sn=71a7ccf6d05282f06df5ed3745255fc0&chksm=ce1da810f96a21060a69286b947ff0f38e7aac052ca12f22514bb8d37d4caaa29a39b7837d65&scene=126&sessionid=1694848577#rd
+
+
+中国物流集团2024校园招聘       https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247496771&idx=5&sn=4386cf263664f35c16e49978cadb1400&chksm=ce1da810f96a2106571f20c1c3ae46be78cfbb4dbf97b81c0fbe8202f3886dfbc1db0181c25b&scene=126&sessionid=1694848577#rd
+
+
+中国电信2024校园招聘      https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247496905&idx=4&sn=91a30fbe75b171a2c9dc94acec2e6747&chksm=ce1da89af96a218c9ad75cbefc936aa618d6cabbd70bf08854b8cdb0cef91df32154bb851777&scene=126&sessionid=1694848577#rd
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
