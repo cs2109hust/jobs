@@ -1,6 +1,8 @@
 
 公职咨询网 http://www.chinagwyw.org/
 
+公职咨询定向  http://www.chinagwyw.org/gjgwy/671081.html
+
 上海专项和定向合并 ：https://mp.weixin.qq.com/s/OGZKD5QFKeopWWFOzmZx1A
 可以看这个视频，最后有展示去年填写信息时遇到的各项内容，可以提前准备下要填写的信息：https://www.bilibili.com/video/BV1nF41167Fh
 
@@ -15,6 +17,17 @@
 黑龙江定向 （据说去考试送羽绒服） ：  https://gongxuan.ljxfw.gov.cn/index.php/Homes/News/content/cid/207/newid/383.html
 
 云南定向 https://mp.weixin.qq.com/s/PrXKD4cuc9UxVOrm0nHiBg
+
+北京定向  http://rsj.beijing.gov.cn/xxgk/tzgg/202309/t20230915_3260156.html
+
+
+
+
+
+
+
+
+
 
 
 
