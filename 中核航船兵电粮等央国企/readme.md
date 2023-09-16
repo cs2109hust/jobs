@@ -97,8 +97,32 @@
 
 航天科工人才招聘|中国航天科工集团第二研究院2024校园招聘启动https://www.gwy.com/gqzp/319780.html
 
-
+中国邮政直属2024年度校园招聘   https://mp.weixin.qq.com/s/4ssM3hTIjwHuG9RWx-R-5w
  
+中国南水北调集团2023年度秋季招聘    https://mp.weixin.qq.com/s/T76ee9A4pUVXOeiYVT9A8Q
+
+中国华电集团2024届校园招聘    https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247494781&idx=3&sn=99908f3780ddde2714d13e1ca4c1223e&chksm=ce1db02ef96a3938b99a220a7d99f3a8073a02abdd5f9f5c657f65e2d466b66218f39802f062&scene=126&sessionid=1694848625#rd
+
+
+中国航空工业发展研究中心  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495107&idx=2&sn=2f32a2242ef9442eaf2e6d723467d470&chksm=ce1db190f96a3886a5701db8cdc5490d7bccb465acfed7aa0ea712c237c742b8029cf4c9020c&scene=126&sessionid=1694848625#rd
+
+
+中国铁建2024届校园  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495247&idx=5&sn=05baf3590dbb25668ad20f871103faf0&chksm=ce1db21cf96a3b0a99ffa8968c486903122e266c3b9c0b8a787a0d0090edcd21b9f593e4f8a6&scene=126&sessionid=1694848625#rd
+
+保利集团2024届校园  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495247&idx=3&sn=e3cd7ff3ed8ce6d571de967e88188483&chksm=ce1db21cf96a3b0a8d299fb0cd17476d544c4a8b141e9a8bc87733b64f3f4b41c9cd52cc83e3&scene=126&sessionid=1694848625#rd
+
+国机集团2024届校园招聘  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495247&idx=2&sn=cca4c65088c30de1facd01a83ae85223&chksm=ce1db21cf96a3b0a6d4180436ae0b411cf40b1eb69280d3754af1af2a9cfb104d79a3ceaaaaa&scene=126&sessionid=1694848625#rd
+
+
+华润集团2024届校园招聘正式   https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495247&idx=1&sn=6f067e657a5cd172ba5a0d8f26064ce2&chksm=ce1db21cf96a3b0aecf4d168b6b7663699e991730e4806dfa9a4a6ba2d4afe4a2ed249d9e008&scene=126&sessionid=1694848625#rd
+
+中交集团2024届全球校园  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495382&idx=4&sn=c90a97c3c6ca9df61d65aeecd5145c44&chksm=ce1db285f96a3b93bb6eb36a0b8a9753c9c78dadaecaa856adb25018b8594fc173b9434d4b94&scene=126&sessionid=1694848625#rd
+
+中国船舶第七一一研究所2024届校园  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495382&idx=2&sn=6b67487046030e7bc494e173a9cc5cd1&chksm=ce1db285f96a3b934c119614c54d048dca998e044346587ad7641bffc75f0b4df796c35849bc&scene=126&sessionid=1694848625#rd
+
+
+中核二四2024届校园  https://mp.weixin.qq.com/s?__biz=Mzg2MDkxNzA1Mg==&mid=2247495523&idx=6&sn=533d73e90838442767c1a23cb64c57d7&chksm=ce1db330f96a3a26da0ce43737eb01d7277d681878275f685c030d581e1342101a2717995378&scene=126&sessionid=1694848577#rd
+
 
 
 
