@@ -96,6 +96,36 @@ https://zhaopin.nbcb.com.cn
 https://hr.suzhoubank.com/zpweb/bulletinEdit.do?actPara=findBulletin&bulletinId=OGE4ZmM1NWQ4YTFkMTk4OTAxOGE1ZGI4MTQ1ZDBkYTY=&csrftoken=Y2FiNzgyNmM=
 
 
+华兴资本   https://app.mokahr.com/campus_apply/huaxing/6790#/jobs?zhineng=159666
+
+长沙银行  https://wecruit.hotjob.cn/SU628ddf200dcad4099b64f468/pb/index.html#/
+
+兴业银行  https://job.cib.com.cn/#/home
+
+中信银行  https://job.citicbank.com/
+
+
+中国太平  https://cntp.zhiye.com/campus/jobs
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
