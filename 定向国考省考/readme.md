@@ -20,7 +20,9 @@
 
 北京定向  http://rsj.beijing.gov.cn/xxgk/tzgg/202309/t20230915_3260156.html
 
+贵州定向  http://www.guizhou.gov.cn/ztzl/gzgk/202309/t20230921_82463408.html
 
+浙江定向  http://www.zjgwyw.org/2023/0926/58829.html
 
 
 
