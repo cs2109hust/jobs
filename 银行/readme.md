@@ -109,7 +109,41 @@ https://hr.suzhoubank.com/zpweb/bulletinEdit.do?actPara=findBulletin&bulletinId=
 
 
 
+中国银行	https://campus.chinahr.com/pages/2024-boc/#/
 
+中国农业银行	https://career.abchina.com.cn/build/index.html#/99
+
+中国建设银行	http://job2.ccb.com/cn/job/plan_index.html?planType=XY
+
+中国工商银行	https://job.icbc.com.cn/pc/index.html#/main/school/home/struct
+
+交通银行	https://job.bankcomm.com/queryPosition.do
+
+中国邮政储蓄银行	http://psbc2024.zhaopin.com
+
+中国农业发展银行	http://adbc2024.zhaopin.com/
+
+华夏银行	https://wecruit.hotjob.cn/SU645b0d18bef57c0907e9fbc8/pb/school.html
+
+招商银行	https://career.cmbchina.com/#jobListSchool?id=96574F8D-C7ED-4772-AE7C-BAC896D190C1
+
+民生银行	http://career.cmbc.com.cn:8080/index.jsp#/app/recruitment/campus
+
+南京银行	https://job.njcb.com.cn/#/campus
+
+微众银行	https://campus.webank.com/campus-recruitment/webankhr/18005/#/page/%E6%A0%A1%E6%8B%9B%E5%B2%97%E4%BD%8D
+
+招银网络	https://cmbnt.cmbchina.com/pages/schoolRecruit/index.html
+
+九坤投资	https://app.mokahr.com/campus_apply/ubiquantrecruit/37031#/jobs?zhineng=84350
+
+杭州银行	https://myjob.hzbank.com.cn/hzzp-apply/dist/static/index.html#/employ/school
+
+广发证券	https://wecruit.hotjob.cn/SU625527c30dcad4021443cdda/pb/school.html
+
+同花顺	https://campus.10jqka.com.cn/job/list
+
+江苏银行	https://hr.jsbchina.cn/spa/custom/static/index.html#/main/cs/app/415469a50449415a9b56642c69728966_campuspost?xzlb=1
 
 
 
