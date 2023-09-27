@@ -7,6 +7,7 @@
 
 国家电网  https://mp.weixin.qq.com/s/-eZtG9jb1Vt8WG0TsLtvbQ
 
+https://zhaopin.sgcc.com.cn/sgcchr/static/home.html
 
 
 
