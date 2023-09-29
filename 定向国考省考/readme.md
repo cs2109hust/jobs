@@ -24,7 +24,7 @@
 
 浙江定向  http://www.zjgwyw.org/2023/0926/58829.html
 
-江苏定向  https://mp.weixin.qq.com/s/g3w5aJ9AkKtTMGqh9qeGkA（要求很高）
+江苏定向  https://mp.weixin.qq.com/s/g3w5aJ9AkKtTMGqh9qeGkA
 
 
 
