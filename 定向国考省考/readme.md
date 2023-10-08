@@ -28,7 +28,7 @@
 
 山东定向   http://www.sdgwy.org/html/gdzk/sj/202309/82_79695.html
 
-
+吉林定向   http://www.chinagwyw.org/jilin/673225.html
 
 
 
