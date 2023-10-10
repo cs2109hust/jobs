@@ -30,7 +30,7 @@
 
 吉林定向   http://www.chinagwyw.org/jilin/673225.html
 
-
+四川定向  http://202.61.89.231/content-45-6142EE27E05EACDB
 
 
 
