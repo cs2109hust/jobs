@@ -32,5 +32,17 @@
 
 四川定向  http://202.61.89.231/content-45-6142EE27E05EACDB
 
+中央机关和直属机构    http://bm.scs.gov.cn/kl2024 
+
+辽宁定向   https://ln.bmpta.com/dxxds2024/WebRegister/default.aspx
+
+
+
+
+
+
+
+
+
 
 
