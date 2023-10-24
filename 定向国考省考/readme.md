@@ -36,8 +36,14 @@
 
 辽宁定向   https://ln.bmpta.com/dxxds2024/WebRegister/default.aspx
 
+江西省2024年从华中科技大学选调应届优秀大学毕业生公告
+http://job.hust.edu.cn/jcfw/1971104.htm
 
+广西2024年定向华中科技大学招录选调生公告
+http://job.hust.edu.cn/jcfw/1971091.htm
 
+甘肃省2024年选调应届优秀大学毕业生公告
+http://job.hust.edu.cn/jcfw/1956349.htm
 
 
 
