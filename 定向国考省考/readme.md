@@ -45,9 +45,9 @@ http://job.hust.edu.cn/jcfw/1971091.htm
 甘肃省2024年选调应届优秀大学毕业生公告
 http://job.hust.edu.cn/jcfw/1956349.htm
 
+重庆   http://www.chinagwyw.org/chongqing/676815.html
 
-
-
+江西   http://www.chinagwyw.org/jiangxi/676621.html
 
 
 
