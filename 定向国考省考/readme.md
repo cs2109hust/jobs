@@ -49,6 +49,10 @@ http://job.hust.edu.cn/jcfw/1956349.htm
 
 江西   http://www.chinagwyw.org/jiangxi/676621.html
 
-
+1.青岛优选http://m.hust.edu.cn/wechat/forward.action?path=/portal/wPortal&p=wxactivityDetail&resource_id=6c15d3862c9b4af68c836ae2b88d3868
+​
+​2.重庆紧缺​http://m.hust.edu.cn/wechat/forward.action?path=/portal/wPortal&p=wxactivityDetail&resource_id=f3ebd0c5bdc1445fb4f07d0fe3a6b2bd
+​
+​3.北京朝阳选培​http://m.hust.edu.cn/wechat/forward.action?path=/portal/wPortal&p=wxactivityDetail&resource_id=9ffbb68f139c48459f95757d19ea68ba
 
 
