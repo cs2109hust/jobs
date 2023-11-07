@@ -10,6 +10,7 @@
 https://zhaopin.sgcc.com.cn/sgcchr/static/home.html
 
 
+国家电网有限公司  http://zhaopin.sgcc.com.cn/sgcchr/static/recrAument.html
 
 
 
