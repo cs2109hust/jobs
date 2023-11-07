@@ -55,4 +55,36 @@ http://job.hust.edu.cn/jcfw/1956349.htm
 ​
 ​3.北京朝阳选培​http://m.hust.edu.cn/wechat/forward.action?path=/portal/wPortal&p=wxactivityDetail&resource_id=9ffbb68f139c48459f95757d19ea68ba
 
+内蒙古  https://job.hust.edu.cn/jcfw/1991457.htm
+
+浙江省考  http://gwy.zjks.gov.cn/zjgwy/website/init.htm
+
+上海省考  www.shacs.gov.cn
+
+江苏省考  https://jshrss.jiangsu.gov.cn/col/col57253/
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
