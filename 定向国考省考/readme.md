@@ -63,7 +63,13 @@ http://job.hust.edu.cn/jcfw/1956349.htm
 
 江苏省考  https://jshrss.jiangsu.gov.cn/col/col57253/
 
+陕西定向  http://www.chinagwyw.org/shanxi2/680211.html
 
+宁夏  http://www.chinagwyw.org/ningxia/678833.html
+
+安徽   http://www.chinagwyw.org/anhui/678914.html
+
+海南  http://www.chinagwyw.org/hainan/680212.html
 
 
 
